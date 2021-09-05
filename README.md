@@ -1,1 +1,1 @@
-Present yourself right way :)
+Present yourself on right way :)
